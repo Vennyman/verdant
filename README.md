@@ -1,0 +1,1 @@
+Vacancy! For the post of a Business Development Officers and Qualified Markers at #Verdant World Global Limited# Anyone's around Abule egba,Sango,Yana paja,meiran,Ile epo,ijaiye,Kola, ijaiye and other vicinity that is close by to the office.you can Call or send your CV to the WhatsApp number below on the Flyers
